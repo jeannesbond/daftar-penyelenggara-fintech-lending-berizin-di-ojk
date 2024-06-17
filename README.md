@@ -1,1 +1,3 @@
-per 9 Oktober 2023
+Daftar Penyelenggara Fintech Lending Berizin di OJK
+
+per 31 Mei 2024
